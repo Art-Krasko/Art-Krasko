@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Art-Krasko
 - 👀 I’m interested in fitness APP
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently job fo ART FITNESS CLUB
 - 💞️ I’m looking to collaborate on fitness & APP
 - 📫 How to reach me fitness ART club
 
